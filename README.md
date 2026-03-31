@@ -1,1 +1,0 @@
-# atividade_6_manual
